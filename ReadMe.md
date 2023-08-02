@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 À procura da primeira oportunidade tech<br>🤝 Mercado financeiro e tecnologia<br>💬 Análise e Desenvolvimento de Sistemas (cursando)<br>⚡ Posso até não sabe muita coisa, mas é só questão de tempo <br>      até te impressionar com o que posso desenvolver
+🔭 À procura da primeira oportunidade tech<br>🤝 Mercado financeiro e tecnologia<br>💬 Análise e Desenvolvimento de Sistemas (cursando)<br>⚡ Posso até não saber muita coisa, mas é só questão de tempo <br>      até te impressionar com o que posso desenvolver
 
 
 ## 🌐 Socials:
